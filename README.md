@@ -1,1 +1,1 @@
-# clowo
+# CLO-se WO-rds
